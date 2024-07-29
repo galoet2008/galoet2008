@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @galoet2008, conhecido como boyceta 
 - 👀 I’m interested in ... putos 
 - 🌱 I’m currently learning ... free fire
-- 💞️ I’m looking to collaborate on ... pelado
-- 📫 How to reach me ... estudante
+- 💞️ I’m looking to collaborate on ... altas gozadas 
+- 📫 How to reach me ... na minha casa
 - 😄 Pronouns: ... neutro
 - ⚡ Fun fact: ... job
 
